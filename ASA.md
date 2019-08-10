@@ -1,5 +1,7 @@
 # Awesome Sustainability Actions
 
+### Simple actions you can take right now to live more sustainably. Tread lightly.  
+
 ##### Public hand washing
 *Don't use dryer or paper towels.*  
 You can air dry your hands or wipe them on your clothes. It's only water after all.
