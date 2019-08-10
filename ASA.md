@@ -17,3 +17,7 @@ Water will clean you of almost anything. Most everything else is to make you sme
 ##### Bring bag
 *Always have a carry bag with you*  
 You'll never "have to" get a new plastic bag if you have one already.
+
+###### Buy stylish
+*Choose stylish clothes that never go out of fashion*  
+Fashion is what industry wants, style is what people want.
