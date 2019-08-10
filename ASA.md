@@ -12,3 +12,6 @@ It will bio degrade whatever you do with it and it avoids paper cup and plastic 
 *Use few soaps and body products.*  
 Water will clean you of almost anything. Most everything else is to make you smell nice. Pick one.
 
+##### Bring bag
+*Always have a carry bag with you*  
+You'll never "have to" get a new plastic bag if you have one already.
