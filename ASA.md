@@ -7,7 +7,7 @@
 You can air dry your hands or wipe them on your clothes. It's only water after all.
   
 ##### Ice Cream choice
-*Ask for your ice cream in a waffle cone.*  
+*Ask for your ice cream in a waffle container.*  
 It will bio degrade whatever you do with it and it avoids paper cup and plastic spoons.
 
 ##### Less soap
