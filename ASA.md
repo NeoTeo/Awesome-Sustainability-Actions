@@ -8,5 +8,7 @@ You can air dry your hands or wipe them on your clothes. It's only water after a
 *Ask for your ice cream in a waffle cone.*  
 It will bio degrade whatever you do with it and it avoids paper cup and plastic spoons.
 
-
+##### Less soap
+*Use few soaps and body products.*  
+Water will clean you of almost anything. Most everything else is to make you smell nice. Pick one.
 
