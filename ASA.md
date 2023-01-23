@@ -7,7 +7,7 @@
 You can air dry your hands or wipe them on your clothes. It's only water after all.
   
 ##### Ice Cream choice
-*Ask for your ice cream in a waffle container.*  
+*Ask for your ice cream in a waffle instead of a waxed paper or plastic container.*  
 It will bio degrade whatever you do with it and it avoids paper cup and plastic spoons.
 
 ##### Less soap
@@ -21,3 +21,7 @@ You'll never "have to" get a new plastic bag if you have one already.
 ###### Buy stylish
 *Choose stylish clothes that never go out of fashion*  
 Fashion is what industry wants, style is what people want.
+
+###### Repurpose
+*Some products can be useful beyond their original design.* 
+Use shower caps to cover containers instead of plastic wrap (HT Neven Mrgan)
